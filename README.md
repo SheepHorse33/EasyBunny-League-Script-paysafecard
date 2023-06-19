@@ -29,3 +29,5 @@ Lifetime - SOON
 
 
 Please report any bugs directly to me Opera#8521 
+Working on Discord Servevr
+CONTACT FOR ANYTHING HERE Opera#8521
