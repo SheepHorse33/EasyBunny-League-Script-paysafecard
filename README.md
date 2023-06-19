@@ -16,8 +16,11 @@ Windows 10 and Windows 11 all versions supported
 Setup for your PC and instructions of how to run will be provided after purchase
 
 1 Day - 5 USD
+
 7 Day - 15 USD
+
 30 Day -  30 USD
+
 Lifetime - SOON
 
 
