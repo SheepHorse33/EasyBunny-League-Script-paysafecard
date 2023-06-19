@@ -15,6 +15,8 @@ The only League of Legends Script you will ever need
 Windows 10 and Windows 11 all versions supported
 Setup for your PC and instructions of how to run will be provided after purchase
 
+
+
 1 Day - 5 USD
 
 7 Day - 15 USD
@@ -22,6 +24,8 @@ Setup for your PC and instructions of how to run will be provided after purchase
 30 Day -  30 USD
 
 Lifetime - SOON
+
+
 
 
 Please report any bugs directly to me Opera#8521 
